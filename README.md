@@ -1,0 +1,1 @@
+# new_kurd_stodeo--privacy
